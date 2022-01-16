@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DestinyBlue
 - 👀 I’m interested in ...men & money
 - 🌱 I’m currently learning ...about crypto investing
-- 💞️ I’m looking to collaborate on ...daving humans
+- 💞️ I’m looking to collaborate on ...saving humans & animals
 - 📫 How to reach me ...
 
 <!---
